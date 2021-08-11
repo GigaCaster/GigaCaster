@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GigaCaster
-- 👀 I’m interested in learning new things
+- 👀 I’m interested in learning new things expecially when it comes to the practical aspect.
 - 🌱 I’m currently learning Software Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 0835782090 or jvisser1903@gmail.com
